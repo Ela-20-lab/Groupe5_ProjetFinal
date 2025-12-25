@@ -1,3 +1,3 @@
 # Groupe5_ProjetFinal
 Ce dossier contient les livrable du projet dclic
-https://gamma.app/docs/EXPANSION-AKWOE-en-AFRIQUE-SUB-SAHARIENNE-0dtn7svre41b9la
+https://drive.google.com/drive/folders/1oP7J-Bins3dw6HZHaqO03AvNYZv3t9TO?usp=sharing
